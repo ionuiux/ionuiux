@@ -4,7 +4,7 @@
 
 12+ years designing B2B SaaS, mobility, fintech and developer tools, from first idea to launch. I design AI-native products, prototype in code and build design systems teams ship with. Most recently AI-Native Product Designer at Flovi. Red Dot Award 2024.
 
-B2B contract or full-time · EU citizen · Remote EU / US or relocation in the EU
+B2B contract or full-time · EU citizen · Remote EU / US 
 
 **What I do**
 
